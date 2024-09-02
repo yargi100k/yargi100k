@@ -1,5 +1,5 @@
 # 💫 About Me:
-🧑‍💻Coding since i was 11 years old<br>🖤|Black hat hacker|🖤<br>🧑‍💻 Hacking since i was 12 years old
+🧑‍💻Coding since i was 11 years old<br>🖤|Black hat hacker|🖤<br>🧑‍💻 Hacking since i was 12 years old<br>⚙️Troubleshooter and Pc/Hardware builder
 
 
 ## 🌐 Socials:
